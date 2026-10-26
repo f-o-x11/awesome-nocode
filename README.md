@@ -29,6 +29,7 @@ https://www.squarespace.com/
 https://naratake.com/en  
 https://helmpages.com/  
 https://icybiz.com/  
+https://deed.page/  
 https://figment.so/
 
 
